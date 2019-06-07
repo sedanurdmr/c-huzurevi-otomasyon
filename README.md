@@ -1,0 +1,1 @@
+# c-huzurevi-otomasyon
